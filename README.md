@@ -1,0 +1,1 @@
+# Cloud-Based-Smart-Agriculture-and-Crop-Monitoring-Platform
